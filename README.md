@@ -3,6 +3,12 @@ InteractionMovie 交互大电影
 
 
 
+## 新想法
+
+https://www.bilibili.com/video/BV14i4y1E7h4/
+
+小没用：1+1=几——询问Siri小爱等。
+
 ## 大纲
 
 黑科技
